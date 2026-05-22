@@ -1,0 +1,1 @@
+# sistema-figma1.0
